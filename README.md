@@ -1,0 +1,1 @@
+# TrendSpot
